@@ -5,7 +5,8 @@
 ![image](https://github.com/user-attachments/assets/d4ce2cf4-c604-4660-a167-c3e9bac700c7)
 
 
+
 (sorry for the weird gacha thingys heh)
 
 
-pls int pls int I love making new friends!
+plspls int I love making new friends!
