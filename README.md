@@ -16,3 +16,5 @@ pls int ^ ^
 
 
 plspls int I love making new friends!
+
+*DEATHNOTE FANS PLS INT SIGH
