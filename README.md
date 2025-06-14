@@ -1,4 +1,4 @@
-following ppl with same intrests!! 
+following ppl with same intrests as mine!! 
 
 pls int ^ ^
  
