@@ -6,7 +6,6 @@ pls int ^ ^
  ![image](https://github.com/user-attachments/assets/f2a29cd5-447f-4273-a337-3f26bc237732)
 ![image](https://github.com/user-attachments/assets/f8e99ba4-25f2-4098-af14-52b6f638e2ae)
 
-═════════════════════════════════════════════════════════════════════════════
 
 
 
@@ -15,7 +14,6 @@ pls int ^ ^
 
 
 
-![image](https://github.com/user-attachments/assets/d4ce2cf4-c604-4660-a167-c3e9bac700c7)
 
 
 
@@ -23,5 +21,3 @@ pls int ^ ^
 
 
 plspls int I love making new friends!
-
-*DEATHNOTE FANS PLS INT SIGH
