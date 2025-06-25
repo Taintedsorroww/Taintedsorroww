@@ -5,7 +5,7 @@
 
 following ppl with same intrests as mine!! 
 
-pls int (I'm cool trust 🤓) I love making new friends ^ ^
+pls int I love making new friends ^ ^
 
 
 I'm scared to int first 🥀😔 (sorry)
