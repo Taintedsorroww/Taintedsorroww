@@ -1,4 +1,4 @@
-
+link click fans pls int [write in my ata if u are one so we can be friends :3 (if u want to be)]
 ![image](https://github.com/user-attachments/assets/127449a0-0eae-4b25-9968-3259c477b068)
 
 ![image](https://github.com/user-attachments/assets/acb63900-52ad-419f-89e0-baded918f545)
