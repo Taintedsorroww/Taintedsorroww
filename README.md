@@ -20,7 +20,7 @@ I'm scared to int first 🥀 (sorry im a bit shy )
 
 winks 
 
-
+fandoms- bsd,omori,deathnote,link click,alien stage, coldfront, deadplate,fpe,ddlc
 
 
 
