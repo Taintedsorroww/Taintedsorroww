@@ -11,7 +11,7 @@ following ppl with same intrests as mine!!
 pls int I love making new friends ^ ^
 
 
-I'm scared to int first 🥀 (sorry)
+I'm scared to int first 🥀 (sorry im a bit shy )
 
 ![image](https://github.com/user-attachments/assets/63174262-0109-477b-9a4f-2a386fdb4285)
 ![image](https://github.com/user-attachments/assets/a2b0158d-88cf-4903-9cd3-5ebcb4a2ff5f)
