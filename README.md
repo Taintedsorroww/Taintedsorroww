@@ -6,7 +6,6 @@
 
 int I love making new friends!
 
-
 I don't usually int first 💔
 
 I follow ppl who have same interests as mine
