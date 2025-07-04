@@ -5,4 +5,12 @@
 ![1000011501](https://github.com/user-attachments/assets/2acdf35a-c4bc-405f-83f5-507a9c6ec66b)
 
 int I love making new friends!
+
+
 I don't usually int first 💔
+
+I follow ppl who have same interests as mine
+
+winks
+
+fandoms! - bsd,deathnote,alnstage,linkclick,fnaf,omori,ddlc,fpe,dw
