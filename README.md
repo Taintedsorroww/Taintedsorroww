@@ -12,4 +12,4 @@ I follow ppl who have same interests as mine
 
 winks
 
-fandoms! - bsd,deathnote,alnstage,linkclick,fnaf,omori,ddlc,fpe,dw
+fandoms! - bsd,deathnote,alnstage,linkclick,fnaf,omori,ddlc,fpe,dw,coldfront,deadplate
