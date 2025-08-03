@@ -17,4 +17,7 @@
 
 <img width="736" height="419" alt="image" src="https://github.com/user-attachments/assets/bf93cea1-921e-4749-be5e-f04ee106cd25" />
 
-(I wanted to add these idk if it looks good)
+<img width="734" height="266" alt="image" src="https://github.com/user-attachments/assets/b457389d-7c9d-4b04-aa90-ff34760d984b" />
+
+
+(felt cute, added these)
