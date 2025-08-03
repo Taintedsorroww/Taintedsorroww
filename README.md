@@ -1,4 +1,4 @@
-I follow ppl with same interests as mine
+
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/bc900452-00a3-4c26-83f8-3b34c088f0ae" />
 
