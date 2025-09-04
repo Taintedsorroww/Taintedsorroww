@@ -1,19 +1,26 @@
-<img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/a85fef71-b57e-442c-9f45-2d2c2eb2a1c0" />
+![1000015787](https://github.com/user-attachments/assets/7230da48-ab3b-46f4-a302-d77b824d70e7)
 .
 
 
 .
 
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+
+ 
+
+" I knew my love was different from yours.. but it was love too "
 
 
-
-
-me and who??
-
-
-<img width="2000" height="380" alt="image" src="https://github.com/user-attachments/assets/5235c16a-9db7-4323-adb6-2751cc80bc54" />
-
-
-
-![1000015170](https://github.com/user-attachments/assets/f4d770c9-68e3-4013-93ff-1122a6efe5f7)
-
+(I love mizisua .. ok?)
