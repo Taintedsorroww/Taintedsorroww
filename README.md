@@ -20,7 +20,13 @@
 
  
 
-" I knew my love was different from yours.. but it was love too "
+I knew my love was different from yours.. but it was love too 
+.
 
+.
+
+.
+
+.
 
 (I love mizisua .. ok?)
