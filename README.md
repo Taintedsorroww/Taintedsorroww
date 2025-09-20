@@ -32,6 +32,7 @@
 <img width="348" height="424" alt="image" src="https://github.com/user-attachments/assets/4f8c8014-dddd-40d3-a0f5-e6e68374a56d" />
 
 <img width="350" height="420" alt="image" src="https://github.com/user-attachments/assets/5795dd9b-7e1f-49cc-b99f-9ab9bc33dd9c" />
+the gang (mentally not ok)
 
 .
 
