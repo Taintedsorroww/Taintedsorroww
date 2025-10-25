@@ -1,12 +1,4 @@
 hi hello 
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/0abaab81-25b8-49d4-884e-7bb90d8f893f" />
+<img width="536" height="536" alt="image" src="https://github.com/user-attachments/assets/ed607070-2b64-49d9-8bdc-db147f717268" />
 
-
-
-
-
-
-
-
-int .. ok?
