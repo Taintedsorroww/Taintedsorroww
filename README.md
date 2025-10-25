@@ -1,6 +1,7 @@
 hi hello 
 
-<img width="536" height="536" alt="image" src="https://github.com/user-attachments/assets/ed607070-2b64-49d9-8bdc-db147f717268" />
+<img width="735" height="732" alt="image" src="https://github.com/user-attachments/assets/6862bcaa-f3f1-4860-af45-472b4615ae19" />
+
 
 .
 
@@ -8,4 +9,4 @@ hi hello
 
 .
 
-I love both 
+sign ata heh and Ill give u mega shadow dragon in adopt me (trust me im NOT a scammer)
