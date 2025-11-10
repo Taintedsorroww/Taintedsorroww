@@ -127,7 +127,7 @@ sa yo na ra gng
 
 
 
-<img width="240" height="460" alt="image" src="https://github.com/user-attachments/assets/6804aea4-8e95-4a68-bc67-535e54aca640" /> <img width="240" height="460" alt="image" src="https://github.com/user-attachments/assets/1cc65a25-4575-495f-84bd-efeac266f24e" />
+<img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/6804aea4-8e95-4a68-bc67-535e54aca640" /> <img width="100" height="200" alt="image" src="https://github.com/user-attachments/assets/1cc65a25-4575-495f-84bd-efeac266f24e" />
 
 
 my fav (doomed)
