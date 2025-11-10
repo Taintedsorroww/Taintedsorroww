@@ -43,4 +43,4 @@ sign ata pls .. ok?
 <img width="720" height="720" alt="image" src="https://github.com/user-attachments/assets/a4f6f82a-72fc-4255-9c4f-df6f76c815ea" />
 
 
-" my soul is always with you ."
+"my soul is always with you"
